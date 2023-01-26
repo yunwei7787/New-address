@@ -7,14 +7,14 @@
 （观众下载无法使用）
 
 备用观众版下载地址如下
-# 46xq.xyz
-# v724.xyz
-# f6mr.xyz
-# q082.xyz
+46xq.xyz
+v724.xyz
+f6mr.xyz
+q082.xyz
 
 备用主播版下载地址如下
-# ykgu.xyz
-# p2qi.xyz
+ykgu.xyz
+p2qi.xyz
 #  趣爱回家页简介
 专人不断更新，提供最新小狐狸下载地址
 
