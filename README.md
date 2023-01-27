@@ -7,10 +7,10 @@
 （观众下载无法使用）
 
 备用观众版下载地址如下
-  46xq.xyz
-  v724.xyz
-  f6mr.xyz
-  q082.xyz
+  46xq.xyz  
+  v724.xyz  
+  f6mr.xyz  
+  q082.xyz  
 
 备用主播版下载地址如下
   ykgu.xyz
